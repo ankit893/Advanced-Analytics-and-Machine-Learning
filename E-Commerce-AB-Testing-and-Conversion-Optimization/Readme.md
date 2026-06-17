@@ -105,5 +105,3 @@ Hi, I'm Ankit Sharma, a Data Analyst passionate about solving real-world problem
 📩 ankitsharmaaa893@gmail.com
 
 🔗 : https://www.linkedin.com/in/ankitsharma893/
-
-🌐 : https://linktr.ee/ankitsharma893
